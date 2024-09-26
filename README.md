@@ -1,3 +1,2 @@
-meu nome é manu
-estou usando esse app para sei lá, para mostrar minhas habiliades com o mundo digital kkkk
-é isso um beijo amorecos <33
+-SOBRE MIM-
+MEU NOME É MANU E ESTOU AQUI PARA APRENDER E DESENVOLVER HABILIDADES QUE NEM EU SEI QUE EXISTE, POSSO ESTAR PAREÇENDO PRECIPITADA?SIM, MAS É ISSO KKK
